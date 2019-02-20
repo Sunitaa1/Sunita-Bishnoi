@@ -1,0 +1,2 @@
+# Sunita-Bishnoi
+Fusion Technology Solutions has designed the best digital marketing training in Pune for the candidates who are willing to be a member of the revolution in digital age. Digital Marketing is one of the challenging and endless careers with great future and ample opportunities.  We also offering a Best Clinical Research Course in Pune with 100% written job guarantee. Motive behind this course is to create awareness of clinical trials and to help the people to become knowledgeable professional in Clinical Research.
